@@ -1,5 +1,6 @@
 ## uni of edinburgh 🏴󠁧󠁢󠁳󠁣󠁴󠁿
 
+https://www.linkedin.com/in/kathleen-owen-8636b0258/
 <!--
 **kath-o/kath-o** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
