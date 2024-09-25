@@ -1,4 +1,4 @@
-## uni of edinburgh 
+## uni of edinburgh 🏴󠁧󠁢󠁳󠁣󠁴󠁿
 
 <!--
 **kath-o/kath-o** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
